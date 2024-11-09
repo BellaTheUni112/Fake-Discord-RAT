@@ -1,1 +1,1 @@
-The Owner and Holder of the Copyrights of TurkeyRAT allows free use and distribution of TurkeyRAT.
+Mae Perchennog a Deiliad Copyrits TurkeyRAT yn caniatáu defnydd a dosbarthiad TwrciRAT am ddim.
