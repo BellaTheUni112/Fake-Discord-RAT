@@ -1,1 +1,1 @@
-Mae Discord RAT ffug i docio unrhyw E-Gangsters Discord wannabe yn sbamio ffenestri ar ddyfais y Defnyddiwr
+Mae Discord RAT ffug i prank wannabe Discord E-Gangsters, yn ailgychwyn cyfrifiadur y Defnyddiwr i'r BIOS
